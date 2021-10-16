@@ -1,0 +1,2 @@
+# Adventure-Beach
+Complete daily quests, tasks, work, buy homes and add on or build from start to finish, create a savings  account at the local bay which will give interest,  create a business that can generate even more income, grow a garden , I’ve a yard sale , raise kids, buy pets , trade , buy cars, vans, trucks.   Purchase the mayor pack and make the town great, hire employees, adopt kids and watch them grow, go to the store and actually buy groceries to cook , keep up hygiene, children, house, gas, work, real life as it gets . 
